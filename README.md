@@ -24,18 +24,33 @@
 - **富途牛牛开户**：
 ---
 - **老虎证券**
+【老虎证券10周年】奖励总价值高达2200港币+180天30次免佣卡，[laosji专属开户链接](https://tigr.link/7gIFaD)，或下载APP Tiger Trade在首次注册页面填写邀请码 ：LAOSJI。
+🐅开户需要准备以下资料即可：
+1. 身份证
+2. 国内借记卡（实名验证使用）
+3. 境外卡（入金使用）
+4. 存量证明（2023年5月19日之前其他境外券商证明）
+5. 务必使用群公告链接、或者专属邀请码“LAOSJI”
 ---
 - **长桥证券**：
+🔥🔥长桥证券9月份福利，港股、美股终生交易免佣，达标用户额外再送100港币现金（下个月预计没有了），长桥周边抱枕（下个月没有了，预计下周内送完）；入金2w港币，再送400港币股票卡。
+[戳Laosji长桥链接，奖励加码]：https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100034&invite-code=48T09P
 ---
 - **华盛通**：
+通过OCBC新加坡卡存入到账1万港币或者以上的话，可以补贴200港币现金券
+[专属邀请链接](https://www.hstbroker.com/kh/apply/online?_scnl=E1NC)
 ---
 - **雪盈证券**：
+[开户送盈透证券账户，专属链接](https://sourl.cn/PYaK2E)
 ---
 - **盈透证券**：
+[开户链接，最高可得1000美金奖励](https://www.interactivebrokers.com/referral/chao135)
 ---
 - **嘉信理财**：
+[开户专属链接](https://www.schwab.com/client-referral?refrid=REFERCHPQ83NZ)
 ---
 - **美国第一证券**：
+[first trade 开户专属链接](https://affiliate.firstrade.com/affiliate/idevaffiliate.php?id=1679)
 ---
 - **treading212**：[开户可得最高价值100英镑的碎股](https://www.trading212.com/invite/19BaD17WnV)
 ---
