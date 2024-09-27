@@ -77,7 +77,7 @@
 ### [新开户奖励领取](https://fl.laosji.net/)
 
 # 手机卡
-- [英国手机卡giffgaff-零月租，低成本保号，内地接码专用](http://www.giffgaff.com/orders/affiliate/pmdua778_1721188536165)
+- [免费包邮领取，英国手机卡giffgaff-零月租，低成本保号，内地接码专用](http://www.giffgaff.com/orders/affiliate/pmdua778_1721188536165)
 
 # 转运
 - [ukpostbox-注册自己的英国地址](https://client.ipostalmail.net/Signup?Referrer=REF138644)
