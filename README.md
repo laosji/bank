@@ -16,15 +16,23 @@
 [星展银行新加坡、香港远程见证开户攻略](https://mp.weixin.qq.com/s/OccuRbAAmzLAOAGFQHcITA)
 ---
 - **东亚银行**：内地账户无开户门开，香港/新加坡远程见证开户需要满足50万国内存款要求。
+[东亚银行香港/新加坡账户，远程见证开户攻略](https://mp.weixin.qq.com/s/1XRZiBZpbwM7YS7b6gECOg)
+[东亚银行南向通开户，满足开户条件，无需存款可获得300元京东e卡](https://mp.weixin.qq.com/s/j0foMeOY_p6Pg-BLYuSAzg)
 ---
 - **恒生银行**：内地账户无开户门开，香港/新加坡远程见证开户需要满足50万国内存款要求。
+[恒生银行香港，内地远程见证开户攻略，无需去线下网点，开户全程可在线上完成](https://mp.weixin.qq.com/s/1XRZiBZpbwM7YS7b6gECOg)
 ---
 - **花旗银行（香港）**：开户门槛150万港币
+[花旗银行香港开户攻略，需要满足150万存款，否则收取500/月管理费](https://mp.weixin.qq.com/s/0z0f39f0o0LhlyCMgsrH8A)
 ---
 - **大华银行（新加坡）**：内地账户无开户门开，香港/新加坡远程见证开户需要满足100万国内存款要求。
+[大华银行新加坡远程见证开户攻略，需要满足内地100万存款](https://mp.weixin.qq.com/s/0z0f39f0o0LhlyCMgsrH8A)
 ---
 - **wise**: 英国虚拟银行，无开户门开，可申请实体卡。
-[wise开户可获得，转账免手续费额度]https://wise.com/invite/dic/duanc11
+[wise开户可获得US$600的免费转账额度](https://wise.com/invite/dic/duanc11)
+[wise实体卡英国转运回国攻略](https://mp.weixin.qq.com/s/p1uSpbYE52E7mStui-sNiA)
+![image](https://github.com/user-attachments/assets/46ac290f-55cd-4f76-bb66-465500129a68)
+
 ---
 - **ifast**：英国虚拟银行，总部位于新加坡，可用于无损从英国搬砖到新加坡。
 [ifast开户](https://www.ifastgb.com/tellafriend/chaod1702)
