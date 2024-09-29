@@ -29,8 +29,8 @@
 [大华银行新加坡远程见证开户攻略，需要满足内地100万存款](https://mp.weixin.qq.com/s/0z0f39f0o0LhlyCMgsrH8A)
 ---
 - **wise**: 英国虚拟银行，无开户门开，可申请实体卡。
-[wise开户可获得US$600的免费转账额度](https://wise.com/invite/dic/duanc11)
-[wise实体卡英国转运回国攻略](https://mp.weixin.qq.com/s/p1uSpbYE52E7mStui-sNiA)
+* [wise开户可获得US$600的免费转账额度](https://wise.com/invite/dic/duanc11)
+* [wise实体卡英国转运回国攻略](https://mp.weixin.qq.com/s/p1uSpbYE52E7mStui-sNiA)
 ![image](https://github.com/user-attachments/assets/46ac290f-55cd-4f76-bb66-465500129a68)
 
 ---
